@@ -26,6 +26,14 @@ _(It goes to Payback card, but any card can be selected)_
 https://americanexpress.com/de-de/referral/lUIZGzN8h?XL=MIANS
 
 
+### PAYBACK
+https://www.payback.de/anmelden/freunde-werben?mgm-ref=ca209dca-b488-4327-9ee2-35dbd3093382&excid=mgm&incid=mgm
+
+
+### TopCashback
+https://www.topcashback.de/ref/laguiar
+
+
 ### Trading 212
 https://www.trading212.com/invite/FMA98BWv
 
@@ -46,11 +54,3 @@ https://urbansportsclub.com/join-as-friend/LA51426
 
 ### Wise
 https://wise.com/invite/ih/luizg
-
-
-### Curve
-https://www.curve.com/join#NMQ7MMJE
-
-
-### TopCashback
-https://www.topcashback.de/ref/laguiar
