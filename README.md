@@ -23,7 +23,7 @@ https://de.scalable.capital/en/invitation/bgmjzr
 ### American Express
 _(It goes to Payback card, but any card can be selected)_
 
-https://americanexpress.com/de-de/referral/lUIZGzN8h?XL=MIANS
+https://americanexpress.com/de-de/referral/lUIZGzN8h?XLINK=MYCP
 
 
 ### PAYBACK
