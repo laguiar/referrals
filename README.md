@@ -1,56 +1,51 @@
-# My personal referral links for various services
+# My referral links for various services
 
 ℹ️ _Disclaimer: None of the links below are sponsored._
+
+**If you're coming from a social media link, open this page in a full browser before using any link.**
+
+### American Express
+[Referral link](https://americanexpress.com/de-de/referral/lUIZGuUx8?XLINK=MYCP)
+
 
 ### N26 Bank
 CODE: luiza1021
 
-https://n26.com/r/luiza1021
+[Referral link](https://n26.com/r/luiza1021)
 
 
 ### DKB Bank
-https://freundewerben.dkb.de/PgrphaaE
+[Referral link](https://freundewerben.dkb.de/PgrphaaE)
 
 
 ### Scalable Capital
-https://de.scalable.capital/en/invitation/bgmjzr
+[Referral link](https://de.scalable.capital/en/invitation/bgmjzr)
 
 
 ### TradeRepublic
-[https://ref.trade.re/bdc6xxbd](https://ref.trade.re/bdc6xxbd)
-
-
-### American Express
-_(It goes to Payback card, but any card can be selected)_
-
-https://americanexpress.com/de-de/referral/lUIZGzN8h?XLINK=MYCP
+[Referral link](https://ref.trade.re/bdc6xxbd)
 
 
 ### PAYBACK
-https://www.payback.de/anmelden/freunde-werben?mgm-ref=ca209dca-b488-4327-9ee2-35dbd3093382&excid=mgm&incid=mgm
-
-
-### TopCashback
-https://www.topcashback.de/ref/laguiar
-
-
-### Trading 212
-https://www.trading212.com/invite/FMA98BWv
-
-
-### Interactive Brokers (IBKR)
-https://ibkr.com/referral/luiz116
+[Referral link](https://www.payback.de/anmelden/freunde-werben?mgm-ref=ca209dca-b488-4327-9ee2-35dbd3093382&excid=mgm&incid=mgm)
 
 
 ### Revolut
-https://revolut.com/referral/?referral-code=luizegppz
-
-
-### Urban Sports Club
-Code: LA51426
-
-https://urbansportsclub.com/join-as-friend/LA51426
+[Referral link](https://revolut.com/referral/?referral-code=luizegppz)
 
 
 ### Wise
-https://wise.com/invite/ih/luizg
+[Referral link](https://wise.com/invite/ih/luizg)
+
+
+### TopCashback UK
+[Referral link](https://www.topcashback.co.uk/ref/laguiar)
+
+
+### TopCashback DE
+[Referral link](https://www.topcashback.de/ref/laguiar)
+
+
+### Interactive Brokers (IBKR)
+[Referral link](https://ibkr.com/referral/luiz116)
+
