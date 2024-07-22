@@ -1,14 +1,12 @@
 ℹ️ _Disclaimer: None of the links below are sponsored._
 
-**If you're coming from a social media link, open this page in a full browser before using any link.**
+If you're coming from a social media link, open this page in a full browser before using any link.
 
 ### American Express
 [Referral link](https://americanexpress.com/de-de/referral/lUIZGuUx8?XLINK=MYCP)
 
 
 ### N26 Bank
-CODE: luiza1021
-
 [Referral link](https://n26.com/r/luiza1021)
 
 
