@@ -2,23 +2,26 @@
 
 If you're coming from a social media link, open this page in a full browser before using any link.
 
+_(and accept the cookies)_
+
+
 ### American Express
 [Referral link](https://americanexpress.com/de-de/referral/lUIZGuUx8?XLINK=MYCP)
+
+
+### Revolut
+[Referral link](https://revolut.com/referral/?referral-code=luizegppz)
 
 
 ### N26 Bank
 [Referral link](https://n26.com/r/luiza1021)
 
 
-### DKB Bank
-[Referral link](https://freundewerben.dkb.de/PgrphaaE)
-
-
 ### Scalable Capital
 [Referral link](https://de.scalable.capital/en/invitation/bgmjzr)
 
 
-### TradeRepublic
+### Trade Republic
 [Referral link](https://ref.trade.re/bdc6xxbd)
 
 
@@ -26,12 +29,12 @@ If you're coming from a social media link, open this page in a full browser befo
 [Referral link](https://www.payback.de/anmelden/freunde-werben?mgm-ref=ca209dca-b488-4327-9ee2-35dbd3093382&excid=mgm&incid=mgm)
 
 
-### Revolut
-[Referral link](https://revolut.com/referral/?referral-code=luizegppz)
-
-
 ### Wise
 [Referral link](https://wise.com/invite/ih/luizg)
+
+
+### DKB Bank
+[Referral link](https://freundewerben.dkb.de/PgrphaaE)
 
 
 ### TopCashback UK
