@@ -1,7 +1,6 @@
 ℹ️ _Disclaimer: None of the links below are sponsored._
 
 If you're coming from a social media link, open this page in a full browser before using any link.
-
 _(and accept the cookies)_
 
 
