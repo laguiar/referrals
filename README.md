@@ -29,7 +29,7 @@ _(and accept the cookies)_
 
 
 ### Nomad
-[Referral link](https://nomad.onelink.me/wIQT/ConviteExclusivoContaInternacional?code=8NFP2KRRTN%26n=Luiz) **Code:** `8NFP2KRRTN`
+[Referral link](https://nomad.onelink.me/wIQT/ConviteExclusivoContaInternacional?code=8NFP2KRRTN%26n=Luiz)  **Code:** `8NFP2KRRTN`
 
 
 ### Wise
