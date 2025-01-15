@@ -28,6 +28,10 @@ _(and accept the cookies)_
 [Referral link](https://www.payback.de/anmelden/freunde-werben?mgm-ref=ca209dca-b488-4327-9ee2-35dbd3093382&excid=mgm&incid=mgm)
 
 
+### Nomad
+[Referral link](https://nomad.onelink.me/wIQT/ConviteExclusivoContaInternacional?code=8NFP2KRRTN%26n=Luiz) **Code:** `8NFP2KRRTN`
+
+
 ### Wise
 [Referral link](https://wise.com/invite/ih/luizg)
 
